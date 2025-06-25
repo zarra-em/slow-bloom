@@ -1,7 +1,9 @@
 i hate when people write their whole life story before getting to the actual recipe, but i'd also love to know what type of masochist spends time reading through the whole thing. instead, i word vomited *throughout* the recipe so you can't skip over my necessary ramblings.
 
 **warning**: this recipe involves chilling the dough for at least 1 hour (if you don't have time for that, avoid browning the butter). also, if you don't own a kitchen scale, don't use this recipe (or ask chatgpt to convert everything for you)
+
 **tips**: if you forget to take out your eggs ahead of time, put them in a bowl of lukewarm water as a tempering technique.
+
 **recommendations**: listen music—post be-bop, blues rock, or soukous. listen to a podcast—heavyweight, louder than a riot, or oologies.
 
 
