@@ -1,6 +1,6 @@
 ---
-title: Welcome to Quartz
+title: welcome to slow bloom
 ---
+i'm glad you've stumbled upon the disorderly (digital) garden of my unkempt thoughts. 
 
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+hope you enjoy :)
