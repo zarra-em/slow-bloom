@@ -49,4 +49,4 @@ i hate when people write their whole life story before getting to the actual rec
 
 
 
-inspiration: https://cambreabakes.com/espresso-chocolate-chip-cookies-recipe/#recipe
+give credit where credit is due: https://sallysbakingaddiction.com/chewy-chocolate-chip-cookies/#tasty-recipes-70437 and https://cambreabakes.com/espresso-chocolate-chip-cookies-recipe/#recipe
