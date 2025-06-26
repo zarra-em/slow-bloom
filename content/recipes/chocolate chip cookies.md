@@ -2,12 +2,13 @@ i hate when people write their whole life story before getting to the actual rec
 
 **warning**: this recipe involves chilling the dough for at least 1 hour (if you don't have time for that, just use softened butter instead of brown butter).
 
-**tips**: if you forget to take out your eggs ahead of time, put them in a bowl of lukewarm water as a tempering technique. make sure to sift your flour and whisk your eggs to aerate the dough (i.e., incorporate air). don't mistake baking soda for baking powder. have fun :)
+**tips**: if you forget to take your eggs out ahead of time, put them in a bowl of lukewarm water as a tempering technique. brown the butter before starting anything else (giving it time to cool). make sure to sift your flour and whisk your eggs to aerate the dough (i.e., incorporate air). don't mistake baking soda for baking powder. have fun :)
 
 - side note: i used to think classic chip cookies required baking powder (not soda). this was because baking powder only needs a liquid to activate a reaction that produces carbon dioxide, while baking soda needs a liquid *and* an acid (think volcano experiment but in cookie form. this acid is usually found through adding vinegar, buttermilk, cocoa, etc.). however, even though chocolate chip cookies have chocolate chips which are technically acidic, they don't actually contribute to the baking soda reaction. this confused me until i found out that brown sugar was considered acidic (because of its molasses content). sometimes chocolate chip cookie recipes even call for molasses as a flavour/texture enhancer (which makes sense because directly adding molasses further contributes to the production of carbon dioxide, making the cookie have a more cake-like texture). personally, i don't usually add molasses because it adds a vague gingerbread flavour. 
 
-**recommendations**: listen to music—post be-bop, blues rock, or soukous. listen to a podcast—heavyweight, louder than a riot, or oologies.
+**recommendations**: listen to music—post be-bop, tizita, or soukous. listen to a podcast—heavyweight or blond radio.
 
+**INGREDIENTS**
 
 **BOWL 1: BIG BOWL**
 - **195 g of brown butter** (measure the butter into a pot, turn stove on to medium-high, melt until golden brown, cool to room temp, add to bowl 1)
@@ -40,7 +41,7 @@ i hate when people write their whole life story before getting to the actual rec
 3. in intervals, ***fold*** in the ingredients from bowl 3 (flour mixture) into bowl 1 (egg-butter-sugar mixture)
 	- notes: don't add the entire flour mixture from bowl 3 (leave about a 1/4 cup). DO NOT OVER-MIX OR THE BAKING GODS WILL COME FOR YOUR BLOODLINE.
 4. fold in the chocolate chips and the remaining ingredients from bowl 3 (at this point, all the ingredients should be in bowl 1). thoroughly combine without over-mixing.
-5. chill the dough for about 1–12 hours.
+5. chill the dough for about 1–12 hours. make sure to tightly cover with saran wrap so it doesn't dry out.
 	- notes: chilling the dough allows it to become firm enough for baking AND makes it taste better (sometimes chilling it will bring out a toffee flavour).
 6. when your dough is ready, set the oven to 365 °C (every oven is different so maybe check with a thermometer if you care enough)
 7. form cookies (i usually weigh them to be 28-30 g each). put them on a baking tray with parchment (or those silicone things).
