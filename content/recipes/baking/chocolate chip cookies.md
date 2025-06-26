@@ -14,18 +14,21 @@ i hate when people write their whole life story before getting to the actual rec
 - **100 g granulated sugar** 
 - **half an espresso shot (~1.5 tbsp)** (totally optional and measure depending on preference)
 - **34 g nutella or peanut butter or both** (totally optional and measure depending on preference. i usually add a whopping spoonful of nutella)
+
 **BOWL 2: SMALL BOWL**
 - **1 egg** (room temp if your heart desires. i always take out that little white thing—fun fact its called the chalaza, pronounced kəˈleɪzə/kuhˈ-lay-zuh)
 - **1 egg yolk** (the fat from the yolk has an emulsifying effect which limits gluten from forming rigid networks. this makes the dough tender and the cookies chewier)
 - **vanilla extract** (pour until fragrant or measure 2 tsp if you're a stickler)
 - **almond extract** (totally optional. again, pour until fragrant or measure 2 tsp if you're a stickler)
 - **1 tbsp milk** (i use 2%. it's also totally optional but it cuts the sugar a bit)
+
 **BOWL 3: MEDIUM BOWL**
 - **220 g all-purpose flour (or more if needed)** (make sure to sift)
 - **2 tsp cornstarch** (totally optional, but it makes the cookies chewier by mitigating gluten production during the mixing process and acts as a thickening agent that helps with cookie structure)
 - **1 tsp cinnamon** (i like using cinnamon for the essence and a marker to indicate that the dry ingredients have been well mixed)
 - **1 tsp baking *soda***
 - **pinch of salt** (i usually don't add salt if i use salted butter but it's totally up to you if you want to make chocolate chip salt licks)
+
 **ADD AT THE END**
 - **80 g chocolate chips** (or chopped chocolate, preferably semi-sweet. measure based on preference)
 
@@ -44,11 +47,5 @@ i hate when people write their whole life story before getting to the actual rec
 8. put in the oven and bake for about 8 minutes or until golden brown and slightly cracked (try not to over-bake them, but it happens to the best of us).
 9. take them out and let them set for about 2–3 minutes before transferring to a cooling rack.
 10. enjoy! :)
-
-
-
-
-
-
 
 give credit where credit is due: https://sallysbakingaddiction.com/chewy-chocolate-chip-cookies/#tasty-recipes-70437 and https://cambreabakes.com/espresso-chocolate-chip-cookies-recipe/#recipe
