@@ -4,7 +4,8 @@
 
 **tips**: mise en place saves lives. cardamom pods offer more flavour than powdered cardamom. if you forget to take your eggs out ahead of time, put them in a bowl of lukewarm water as a tempering technique. sift the flour and sugar (or just sift all the dry ingredients to ensure there's no clumps). make the buttermilk before starting on anything else so it warms to room temp (if you forget to do this, it's not the end of the world). you can also use the batter to make muffins or a loaf (just make sure you don't overfill the loaf pan).
 
-**recommendations**: listen to music—soul, desert blues/tuareg traditional music, or funk. listen to a podcast—louder than a riot or science vs.
+**music pairing**: soul or funk. 
+**podcast pairing**: louder than a riot or philosophize this.
 
 **INGREDIENTS**
 =

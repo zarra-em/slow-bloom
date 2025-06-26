@@ -4,7 +4,8 @@ i hate when people write their whole life story before getting to the actual rec
 
 **tips**: if you forget to take your eggs out ahead of time, put them in a bowl of lukewarm water as a tempering technique. brown the butter before starting anything else (giving it time to cool). make sure to sift your flour and whisk your eggs to aerate the dough (i.e., incorporate air). have fun :)
 
-**recommendations**: listen to music—post be-bop, tizita, or soukous. listen to a podcast—heavyweight or blond radio.
+**music pairing**: post be-bop or soukous.
+**podcast pairing**: heavyweight or blond radio.
 
 **INGREDIENTS**
 =
