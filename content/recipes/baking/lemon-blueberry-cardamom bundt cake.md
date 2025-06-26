@@ -2,12 +2,12 @@ whenever i need to bring something sweet for an event or celebration, *this* is 
 
 **warning**: this recipe requires a lot of patience (but it's totally worth it).
 
-**tips**: mise en place saves lives. cardamom pods offer more flavour than powdered cardamom. if you forget to take your eggs out ahead of time, put them in a bowl of lukewarm water as a tempering technique. sift the flour and sugar (actually, just sift all the dry ingredients to ensure there's no clumps). make the buttermilk before starting on anything else so it warms to room temp (if you forget to do this, it's not the end of the world but it might be the end of your cake... jk, it'll survive). if you don't feel like baking a cake, you can use the batter to make muffins or a loaf (just make sure you don't overfill the load pan).
+**tips**: mise en place saves lives. cardamom pods offer more flavour than powdered cardamom. if you forget to take your eggs out ahead of time, put them in a bowl of lukewarm water as a tempering technique. sift the flour and sugar (actually, just sift all the dry ingredients to ensure there's no clumps). make the buttermilk before starting on anything else so it warms to room temp (if you forget to do this, it's not the end of the world). you can also use the batter to make muffins or a loaf (just make sure you don't overfill the loaf pan).
 
 **recommendations**: listen to music—soul, desert blues/tuareg traditional music, or funk. listen to a podcast—louder than a riot or science vs.
 
 **INGREDIENTS**
-
+=
 **BOWL 1: BIG BOWL**
 - **360 g all-purpose flour**
 - **300 g granulated sugar**
@@ -18,14 +18,11 @@ whenever i need to bring something sweet for an event or celebration, *this* is 
 - **2 tsp cardamom** (take the cardamom seeds out of the pods, put them in a mortar and pestle, grind until fine)
 - **2 zested lemons**
 - **pinch of salt**
-
 **SAUCEPAN/POT**
 - **113 g brown butter** (measure the butter into a pot, turn stove on to medium-high, melt until golden brown, cool to room temp, add to bowl 1)
-
 **LIQUID MEASURING CUP: 1 CUP**
 - **1/3 cup vegetable oil** (i've never tried it but you could probably experiment by using different variations of oil: e.g., avocado oil, coconut oil, canola oil)
 - **1/6 cup olive oil**
-
 **LIQUID MEASURING CUP: 2 CUP**
 - **3/4 cup buttermilk** (i use 2% milk and lemon juice, but you can use any type of milk and substitute lemon juice for vinegar)
 - **4 large eggs** (i always take out the chalaza—kəˈleɪzə/kuhˈ-lay-zuh)
@@ -33,12 +30,12 @@ whenever i need to bring something sweet for an event or celebration, *this* is 
 - **1.5 juiced lemons**
 - **vanilla extract** (pour until fragrant or measure 1–2 tsp if you're a stickler)
 - **almond extract** (totally optional. again, pour until fragrant or measure 1/2–1 tsp if you're a stickler)
-
 **BOWL 2: MEDIUM BOWL**
 - **340 g blueberries** (i always use frozen. DO NOT THAW. you could probably use fresh if you wanted)
 - **15 g all-purpose flour** (coating the blueberries in flour ensures that they don't sink to the bottom of the cake)
 
 **STEPS**
+=
 1. bowl 1: add and whisk together the respective ingredients of bowl 1. set aside.
 	- notes: make sure to sift the flour and sugar to break up clumps. use a mortar and pestle to grind cardamom seeds.
 2. measure the butter into a pot, turn stove on to medium-high, melt until golden brown, cool to room temp. set aside.
