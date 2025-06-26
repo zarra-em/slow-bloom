@@ -1,6 +1,6 @@
 ---
-title: welcome to slow bloom
+title: welcome!
 ---
-i'm glad you've stumbled upon the disorderly (digital) garden of my unkempt thoughts. 
+i'm glad you've stumbled upon the disorderly (digital) garden of my interests and unkempt thoughts. 
 
 hope you enjoy :)

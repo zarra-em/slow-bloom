@@ -1,47 +1,51 @@
-i hate when people write their whole life story before getting to the actual recipe, but i'd also love to know what type of masochist spends time reading through the whole thing. instead, i word vomited *throughout* the recipe so you can't skip over my necessary ramblings.
+i hate when people write their whole life story before getting to the actual recipe, but i'd also love to know what type of masochist spends their time reading through that whole saga. instead, i word vomited *throughout* the recipe so you can't skip over my "necessary" ramblings.
 
-**warning**: this recipe involves chilling the dough for at least 1 hour (if you don't have time for that, avoid browning the butter). also, if you don't own a kitchen scale, don't use this recipe (or ask chatgpt to convert everything for you)
+**warning**: this recipe involves chilling the dough for at least 1 hour (if you don't have time for that, just use softened butter instead of brown butter).
 
-**tips**: if you forget to take out your eggs ahead of time, put them in a bowl of lukewarm water as a tempering technique.
+**tips**: if you forget to take out your eggs ahead of time, put them in a bowl of lukewarm water as a tempering technique. make sure to sift your flour and whisk your eggs to aerate the dough (i.e., incorporate air). don't mistake baking soda for baking powder. have fun :)
+	- side note: i used to think classic chip cookies required baking powder (not soda). this was because baking powder only needs a liquid to activate a reaction that produces carbon dioxide, while baking soda needs a liquid *and* an acid (think volcano experiment but in cookie form. this acid is usually found through adding vinegar, buttermilk, cocoa, etc.). however, even though chocolate chip cookies have chocolate chips which are technically acidic, they don't actually contribute to the baking soda reaction. this confused me until i found out that brown sugar was considered acidic (because of its molasses content). sometimes chocolate chip cookie recipes even call for molasses as a flavour/texture enhancer (which makes sense because directly adding molasses further contributes to the production of carbon dioxide, making the cookie have a more cake-like texture). personally, i don't usually add molasses because it adds a vague gingerbread flavour. 
 
-**recommendations**: listen music—post be-bop, blues rock, or soukous. listen to a podcast—heavyweight, louder than a riot, or oologies.
+**recommendations**: listen to music—post be-bop, blues rock, or soukous. listen to a podcast—heavyweight, louder than a riot, or oologies.
 
 
 **BOWL 1: BIG BOWL**
-- **195 g of (softened) butter** (optional: put butter in a pot, turn stove on to medium-high, melt until browned, and cool to room temp)
-- **128 g brown sugar** (light or dark, let's not discriminate)
+- **195 g of brown butter** (measure the butter into a pot, turn stove on to medium-high, melt until golden brown, cool to room temp, add to bowl 1)
+- **128 g brown sugar** (light or dark. if you're using light brown sugar, you can add about 1 tsp of molasses)
 - **100 g granulated sugar** 
 - **half an espresso shot (~1.5 tbsp)** (totally optional and measure depending on preference)
-- **34 g nutella or peanut butter or both** (totally optional and measure depending on preference. i usually add a whopping spoonful)
+- **34 g nutella or peanut butter or both** (totally optional and measure depending on preference. i usually add a whopping spoonful of nutella)
 
 **BOWL 2: SMALL BOWL**
-- **1 egg** (1. room temp if your heart desires 2. i always take out that little white thing—fun fact its called the chalaza, pronounced kəˈleɪzə)
-- **1 egg yolk** (according to google, egg yolks are the unhealthiest part of eggs. who would've figured?)
+- **1 egg** (room temp if your heart desires. i always take out that little white thing—fun fact its called the chalaza, pronounced kəˈleɪzə/kuhˈ-lay-zuh)
+- **1 egg yolk** (the fat from the yolk has an emulsifying effect which limits gluten from forming rigid networks. this makes the dough tender and the cookies chewiwer)
 - **vanilla extract** (pour until fragrant or measure 2 tsp if you're a stickler)
 - **almond extract** (totally optional. again, pour until fragrant or measure 2 tsp if you're a stickler)
-- **1 tbsp milk** (totally optional but it cuts the sugar a bit)
+- **1 tbsp milk** (i use 2%. it's also totally optional but it cuts the sugar a bit)
 
 **BOWL 3: MEDIUM BOWL**
-- **220 g all-purpose flour** (1. make sure to sift 2. i hate how all-purpose flour doesn't live up to its name)
-- **2 tsp cornstarch** (totally optional, but according to science it makes the cookies chewier by mitigating gluten production during the mixing process)
-- **1 tsp cinnamon** (1. for the essence 2. a marker to indicate that the dry ingredients are well mixed)
+- **220 g all-purpose flour (or more if needed)** (for the love of Mike, please sift the flour)
+- **2 tsp cornstarch** (totally optional, but it makes the cookies chewier by mitigating gluten production during the mixing process and acts as a thickening agent that helps with cookie structure)
+- **1 tsp cinnamon** (i like using cinnamon for the essence and a marker to indicate that the dry ingredients have been well mixed)
 - **1 tsp baking *soda***
-- **pinch of salt** (i usually don't salt add if i used salted butter but it's totally up to you if you want to make salt licks)
+- **pinch of salt** (i usually don't add salt if i used salted butter but it's totally up to you if you want to make chocolate chip salt licks)
 
 **ADD AT THE END**
 - **80 g chocolate chips** (or chopped chocolate, preferably semi-sweet. measure based on preference)
 
 **STEPS**
-1. Get three bowls (bowl 1: big bowl, bowl 2: small bowl, bowl 3: medium bowl) and mix in their respective ingredients (weighing the ingredients is more accurate).
-2. *Slowly* add the ingredients from bowl 2 into the ingredients in bowl 1 (tips: 1. slowly adding in the egg mixture avoids curdling 2. if you browned the butter make sure it's room temp so the eggs don't get cooked).
-3. In intervals, fold in the ingredients from bowl 3 into bowl 1 (1. don't add the entire mixture from bowl 3 (leave about a 1/4 cup) 2. AVOID OVERMIXING OR THE BAKING GODS WILL COME FOR YOUR BLOODLINE).
-4. Fold in the chocolate chips and the remainder of bowl 3 into bowl 1. Thoroughly combine without overmixing.
-5. Chill the dough for about 1–12 hours (1. chilling the dough allows it to become firm enough for baking AND makes it taste better (sometimes chilling it will bring out a toffee flavour) 2. this step could be optional if you don't have time and your dough is firm enough)
-6. Set the oven to 365 °C (every oven is different so maybe check with a thermometer if you care enough)
-7. Form cookies (i usually weigh them out to be 28-30 g each). Put them on a baking tray with parchment (or those silicone things).
-8. Put in the oven and bake for about 8 minutes or until golden brown and slightly cracked (try not to overbake them, but it happens to the best of us)
-9. Take them out and let them set for about 2–3 minutes before transferring to a cooling rack (if you don't have a cooling rack just put them on a plate or something)
-10. Enjoy :)
+1. get three bowls (bowl 1: big bowl, bowl 2: small bowl, bowl 3: medium bowl) and mix in their respective ingredients (weighing the ingredients is more accurate).
+2. ***slowly*** add the ingredients from bowl 2 (egg mixture) into bowl 1 (butter-sugar mixture)
+	- tips: slowly adding the egg mixture to the butter-sugar mixture avoids curdling. if you browned the butter, make sure it's cooled to room temp so the eggs don't get cooked.
+3. in intervals, ***fold*** in the ingredients from bowl 3 (flour mixture) into bowl 1 (egg-butter-sugar mixture)
+	- notes: don't add the entire flour mixture from bowl 3 (leave about a 1/4 cup). DO NOT OVER-MIX OR THE BAKING GODS WILL COME FOR YOUR BLOODLINE.
+4. fold in the chocolate chips and the remaining ingredients from bowl 3 (at this point, all the ingredients should be in bowl 1). thoroughly combine without over-mixing.
+5. chill the dough for about 1–12 hours.
+	- notes: chilling the dough allows it to become firm enough for baking AND makes it taste better (sometimes chilling it will bring out a toffee flavour).
+6. when your dough is ready, set the oven to 365 °C (every oven is different so maybe check with a thermometer if you care enough)
+7. form cookies (i usually weigh them to be 28-30 g each). put them on a baking tray with parchment (or those silicone things).
+8. put in the oven and bake for about 8 minutes or until golden brown and slightly cracked (try not to over-bake them, but it happens to the best of us).
+9. take them out and let them set for about 2–3 minutes before transferring to a cooling rack (if you don't have a cooling rack just put them on a plate or something).
+10. enjoy! :)
 
 
 
