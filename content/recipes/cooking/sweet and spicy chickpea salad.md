@@ -1,4 +1,4 @@
-this recipe sort of emerged from wanting to find easy dishes that aligned with my pescatarian diet, but also as a loose adaptation of channa chaat and moroccan chickpea salad ("loose" being the key word because drawing comparisons would be sacrilegious). maybe it's more appropriate to say that this "salad" was a product of hunger induced experimentation. whatever the origins, i think it's delicious and a quick on-the-go meal. i've even brought it camping and both the wasps and i seemed to be enamoured by the kashmiri chili. hope you enjoy :)
+this recipe sort of emerged from wanting to find easy dishes that aligned with my pescatarian diet, but also as a loose adaptation of channa chaat and moroccan chickpea salad ("loose" being the key word because drawing comparisons would be sacrilegious). maybe it's more appropriate to say that this "salad" was a product of hunger-induced experimentation. whatever the origins, i think it's delicious and a quick on-the-go meal. i've even brought it camping and both the wasps and i seemed to be enamoured by the kashmiri chilli. hope you enjoy :)
 
 **warning**: the measurements are *very rough* estimations, so i would recommend altering the recipe based on taste.
 
@@ -14,7 +14,7 @@ this recipe sort of emerged from wanting to find easy dishes that aligned with m
 
 **MEDIUM BOWL**
 - **1/4 cup olive oil**
-- **1 tsp kashmiri chili** (or chili powder)
+- **1 tsp kashmiri chilli** (or chilli powder)
 - **1/2 tsp cumin** (i usually crush the cumin using a mortar and pestle)
 - **1/2 tsp paprika** (can use smoked paprika, hungarian smoked paprika, spanish smoked paprika, or all of them)
 - **2 tbsp lemon juice** (or half a lemon, juiced)
@@ -23,7 +23,7 @@ this recipe sort of emerged from wanting to find easy dishes that aligned with m
 - **1 tbsp pomegranate molasses** (optional since it's a niche ingredient)
 - **1 tbsp agave** (or honey/mirin)
 
-**ADDITIONAL INGREDIENTS (OPTIONAL)
+**ADDITIONAL INGREDIENTS (OPTIONAL)**
 - **feta** (crumble in as much feta as you want)
 - **vegetables** (e.g., edamame, tomato, red onion, bell peppers, cucumber, corn, etc.)
 - **dried fruits** (e.g., golden raisins, craisins, etc.)
